@@ -1,3 +1,5 @@
+![C-Unleash-Job-Opportunities-in-the-Microsoft-Tech-Ecosystem](https://github.com/user-attachments/assets/65cd4132-eb1a-4965-82a6-71bb53467ea4)
+
 ## 🔥 Project Name - SMARTCODES2019
 
 Simply short programs for education.
