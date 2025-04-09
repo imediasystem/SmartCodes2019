@@ -3,7 +3,6 @@
 ## 🔥 Project Name - SMARTCODES2019
 
 Simply short programs for education.
-
 &nbsp;
 
 ## 📚 Technologies / Frameworks / Platforms / Libraries
