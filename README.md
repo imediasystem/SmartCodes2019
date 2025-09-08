@@ -19,7 +19,7 @@ Are you interested in? See my other projects and visit my website [iMedia SysteM
 &nbsp;
 
 ## 📝 Feel free to contact me
-Write sth nice ;) Find me on [Linkedin](https://www.linkedin.com/in/krzysztof-graca-47698997/) ↗️
+Write sth nice ;) Find me on [Linkedin](https://www.linkedin.com/company/imedia-system/about/?viewAsMember=true) ↗️ or [Facebook](https://www.facebook.com/profile.php?id=61577832340228) ↗️
 &nbsp;
 
 ## 👏 Thanks / Special thanks / Credits
